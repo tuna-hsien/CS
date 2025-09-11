@@ -1,3 +1,2 @@
-# CS
-Computer Science Class
-My name is # 魏宇嫻
+# Computer Science Couse
+我是魏宇嫻
