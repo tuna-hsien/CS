@@ -1,3 +1,3 @@
 # CS
 Computer Science Class
-My name is #魏宇嫻
+My name is # 魏宇嫻
