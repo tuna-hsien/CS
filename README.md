@@ -19,6 +19,9 @@
 ### 遊戲
 >我特別喜歡玩音遊，玩過的有BanG Dream、世界計畫、偶像夢幻祭。  
 >特別推薦一款台灣團隊製作的遊戲：[節奏魔女](https://www.dusklightgames.com/rhythmwitch "節奏魔女舞動的骷髏")，結合了類倖存者與音樂節奏要素。  
->我也很喜歡看實況，如Minecraft、Valorant等，特別喜歡彩虹社跟Vspo!、CR。
+>我也很喜歡看實況，如Minecraft、Valorant等，特別喜歡彩虹社、Vspo!跟CR。
 
 ### 動漫
+>不論是動畫、漫畫還是輕小說我都看，其中最愛看**漫畫**~台日韓都看~
+>涉獵各種類型的動漫，
+>
