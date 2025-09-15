@@ -4,4 +4,6 @@ Computer Science Couse
 
 興趣
 ---
-音樂
+-音樂
+-遊戲
+-動漫
