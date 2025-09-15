@@ -1,9 +1,13 @@
-Computer Science Couse
-===
 我是魏宇嫻
+===
+來自新北，平常喜歡宅在家~~不要逼我出門~~
 
 興趣
 ---
 - 音樂
 - 遊戲
 - 動漫
+
+我會各種打擊樂器，包含爵士鼓、木琴、鐵琴等~~好不好聽再說~~，也喜歡彈鋼琴、唱歌。
+平常喜歡聽JPOP，這是我最喜歡的歌手
+[Unnämed](https://youtube.com/@unnamednow00?si=hpLuKkwLWAnI0kzt "游標顯示")
