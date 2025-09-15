@@ -15,3 +15,8 @@
 >平常喜歡聽日文歌，無論是JPOP、動漫歌還是V家我都聽，這是我最喜歡的歌手
 [Unnämed](https://youtube.com/@unnamednow00?si=hpLuKkwLWAnI0kzt "我最喜歡Summer Song這首")。  
 >以前都是參加管樂團這類以古典樂為主的社團，大學我想挑戰**組樂團**。
+
+### 遊戲
+>我特別喜歡玩音遊，BanG Dream、世界計畫、偶像夢幻祭
+
+### 動漫
